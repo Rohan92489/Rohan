@@ -1,2 +1,2 @@
-# Rohan kOSHTI
+# Koshti Rohan.
 Web development
